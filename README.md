@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍💻 I’m currently working on ZentraCore<br>🍌 Banana
+🧑‍💻 I’m currently working on something<br>🍌 Banana
 
 
 ## 🌐 Socials:
